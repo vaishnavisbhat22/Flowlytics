@@ -123,3 +123,6 @@ Insights:
 * GitHub:https://github.com/vaishnavisbhat22
 
 ---
+<img width="1920" height="1080" alt="Screenshot 2026-03-26 194403" src="https://github.com/user-attachments/assets/021aa9b7-f003-4f56-bb9c-c0842c4c3905" />
+
+
